@@ -1,1 +1,2 @@
-# Nuevas-formas-de-la-colonizaci-n-agr-cola
+# Nuevas-formas-de-la-colonización-agrícola
+La promoción de la agricultura mediante la formación de considerada como actividad en cierto modo estatal, porque el Estado concurría con el elemento esencial, la tierra, además de ejercer un cierto patrocinio en lo referente al régimen interno de la colonia, es una actividad que terminó prácticamente con los primeros ensayos, las colonias de las provincias de Santa Fe y Entre Ríos a que nos hemos referido ya. Sustituido el gobierno de la Confederación por los hombres de Buenos Aires, esta actividad dejó de constituir una gestión oficial para dar lugar a una nueva etapa, la de la colonización particular.
